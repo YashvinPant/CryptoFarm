@@ -14,7 +14,7 @@ We aim to help farmers to go beyond financial burden by CONNECTING URBAN TO RURA
 
 2.Dept Trap
 
-3.Lack of resources 
+3.Lack of resources  
 
 4.Low quality production due to financial limitations
 
